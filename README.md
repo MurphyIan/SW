@@ -1,2 +1,2 @@
 Download model files directly
-More Details follow https://www.youtube.com/@MurphyIan-fk8bx
+More Details follow https://youtu.be/ULc4ScQTJ1s
